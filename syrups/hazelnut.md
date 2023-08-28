@@ -29,7 +29,3 @@
 ### Step 5
 
 - Strain the cooled syrup through a fine mesh sieve to remove the hazelnuts.
-
-### Step 6
-
-- Store syrup in an airtight container for up to two weeks.
